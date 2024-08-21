@@ -6,6 +6,6 @@
 
 <sub>**No me gusta** que pongan musica cuando hay un grupo de personas hablando, considero que sumado al ruido de la ciudad, auto o Whatever es RUIDO. </sub>
 
-<sub> Clase 3</sub>
+<sub> Clase 3 20/08</sub>
 
 
